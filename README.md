@@ -7,6 +7,10 @@ Dynamiczne wzrosty i euforia na rynku - czy to sygnał spadku? Czy warto zabezpi
 </div>
 
 ________________________________________
+Pełna analiza: https://dnarynkow.pl/gielda-dlugo-rosnie-to-znaczy-ze-zaraz-spadnie-nie-to-mit/
+
+Youtube: https://www.youtube.com/watch?v=vZ-CJZgzatI&t=1s
+
 Założenia badania:
 
 •	Wielu inwestorów długoterminowych staje przed dylematem: z jednej strony nie chcą realizować zysków i sprzedawać akcji, w które wierzą, z drugiej – obawiają się krótkoterminowej korekty. Rozwiązaniem może być hedging, czyli krótkoterminowe zabezpieczenie portfela poprzez instrumenty pochodne – np. kontrakty na VIX lub opcje put na indeks S&P 500.
