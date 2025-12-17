@@ -7,6 +7,10 @@ Dynamic Market Rallies and Euphoria – Is It a Signal for a Drop? Should You He
 </div>
 
 ________________________________________
+Full analysis: https://dnarynkow.pl/gielda-dlugo-rosnie-to-znaczy-ze-zaraz-spadnie-nie-to-mit/
+
+Youtube: https://www.youtube.com/watch?v=vZ-CJZgzatI&t=1s
+
 Study Assumptions:
 
 • Many long-term investors face a dilemma: on one hand, they do not want to realize profits and sell stocks they believe in; on the other hand, they fear short-term corrections. A possible solution is hedging, i.e., short-term portfolio protection using derivatives – e.g., VIX futures or S&P 500 put options.
